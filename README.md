@@ -23,4 +23,8 @@ I love waking up everyday to bring ideas into reality.
 - Two times prize award winner of BHM Essay Contest by US Embassy.
 - (Older) Build-in-a-box training by ALA, Summer Camp by Cambridge University and Link Ethiopia
 
+## 📫 Connect with Me
+
+- LinkedIn: [Estifanos Amsalu](https://www.linkedin.com/in/estifanos-amsalu-b5b515157/) 
+- Email: [amsaluestifanos@gmail.com](mailto:amsaluestifanos@gmail.com)
 
